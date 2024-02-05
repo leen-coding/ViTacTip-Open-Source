@@ -1,1 +1,1 @@
-[Fig0-Concept.pdf](https://github.com/leen-coding/ViTacTip-Open-Source/files/14163651/Fig0-Concept.pdf)
+![image](https://github.com/leen-coding/ViTacTip-Open-Source/assets/83624267/8686f205-37b5-43d4-80c1-b75d99d1dd19)
